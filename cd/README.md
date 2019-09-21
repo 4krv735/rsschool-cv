@@ -1,2 +1,1 @@
 # rsschool-cv
-че буит 
